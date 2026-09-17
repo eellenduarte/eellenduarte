@@ -17,7 +17,7 @@ Here are some ideas to get you started:
 <div align="center">
 
 # Ellen Duarte
-### Criadora de conteúdo em transição para Tech
+### Criadora de conteúdo, vendedora do varejo em transição para Tech
 
 <br>
 
@@ -28,7 +28,7 @@ Here are some ideas to get you started:
 
 <br>
 
-> *"Criadora de conteúdo em transição para a área de tecnologia, focada em aprendizado contínuo e solução de problemas."*
+> *"10 anos de experiência no varejo, com pessoas, atualmente criadora de conteúdo em transição para a área de tecnologia, focada em aprendizado contínuo e solução de problemas."*
 
 </div>
 
